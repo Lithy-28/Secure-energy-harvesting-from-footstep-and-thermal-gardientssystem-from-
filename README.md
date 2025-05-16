@@ -1,0 +1,1 @@
+# Secure-energy-harvesting-from-footstep-and-thermal-gardientssystem-from-
